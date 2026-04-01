@@ -1,3 +1,3 @@
-👨‍💻 Developed by
+Developed by
 
 ZWEI/CFS H.A
